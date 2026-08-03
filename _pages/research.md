@@ -23,7 +23,7 @@ Working Papers
 Work in Progress
 ======
 
-**"Early Life Interventions, Labor Substitution, and Firms"** (with Steve Ross)
+**"Early Life Interventions, Labor Markets, and Firms"** (with Steve Ross)
 
 Publications
 ======
