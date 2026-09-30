@@ -16,7 +16,7 @@ Working Papers
 **"Child Maltreatment Investigations and Family Well-being"** (with Lindsey Lacey and Katherine Rittenhouse). **Revise and Resubmit, *American Economic Journal: Economic Policy***.  
 [[Working Paper PDF]](/files/papers/w34334.pdf) [[NBER WP 34334]](https://www.nber.org/papers/w34334)
 
-**"Paying for Permanent Families: Subsidizing Permanency Raises Foster Child Achievement"** (with Aaron Sojourner, Heidi Ombisa Skallet, and Jon Pedersen). Under Review.  
+**"Paying for Permanent Families: Subsidizing Permanency Raises Foster Child Achievement"** (with Aaron Sojourner, Heidi Ombisa Skallet, and Jon Pedersen). **Revise and Resubmit, *American Economic Journal: Economic Policy***.  
 [[Working Paper PDF]](/files/papers/w32560.pdf) [[NBER WP 32560]](https://www.nber.org/papers/w32560)  
 *Media coverage:* [MinnPost](https://www.minnpost.com/)
 
